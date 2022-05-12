@@ -4,5 +4,6 @@ Indiai is a democracy.
 America is a democracy.
 Pakistan is not a democracy.
 I am the one who is the one.
+Bhutan too is not a democracy.
 
 
